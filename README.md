@@ -1,5 +1,5 @@
 
-# **`🤖 Julio Oscar`**
+# **`😶 Julio Oscar`**
 
 ## **👋🏻 Hello there!**
 
@@ -17,7 +17,7 @@
 
 - Desenvolvimento de projetos maker 🛠
 
-- Programação (principalmente em C++ e Python) 💻
+- Programação (principalmente em C++) 💻
 
 - Educação e criação de conteúdos didáticos 📖
 
