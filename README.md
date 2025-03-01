@@ -5,7 +5,7 @@
 
 
  
-*Sou apaixonado por tecnologia, robótica e tudo que envolve o mundo nerd e geek👾. Desde os 16 anos, estudo robótica e adoro montar projetos, explorando sempre novas ideias e desafios. Além disso, sou fã do bom e velho punk-rock 🤟 e tenho grande interesse por astronomia, psicologia, sociologia, filosofia e história.✨*
+*Sou apaixonado por tecnologia, robótica e tudo que envolve o mundo nerd e geek👾. Desde os 16 anos, estudo robótica e adoro montar projetos, explorando sempre novas ideias e desafios. Além disso, tenho grande interesse por astronomia, psicologia, sociologia, filosofia e história.✨*
 
 ## 💼 Carreira
 
